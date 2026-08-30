@@ -1,0 +1,1 @@
+Rhumba House is a restaurant and bar taking shape in Hai Jalaba, Juba — a long bar, a warm African‑rustic feel, and a grill starting with smash burgers, hot dogs and sausages. We are finishing the build now.
